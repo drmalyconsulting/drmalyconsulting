@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI and automation
 - 🌱 I’m currently learning bots creation
 - 💞️ I’m looking to collaborate on bots creation
-- 📫 manuel.len@drmalyconsulting.com
+- 📫 manuel.len@gmail.com
 - 😄 @drmaly
 - ⚡ I am an avid cyclist and yoga practitioner.
 
